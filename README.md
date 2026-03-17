@@ -73,8 +73,8 @@ Notes/
 
 ## 🤝 Connect With Me
 
-* 🔗 LinkedIn: (Add your link)
-* 📧 Email: (Add your email)
+* 🔗 LinkedIn: https://www.linkedin.com/in/tanish-sethiya-08836332b/
+* 📧 Email: sethiyatanish5@gmail.com
 
 ---
 
